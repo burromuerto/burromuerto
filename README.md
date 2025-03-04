@@ -1,0 +1,66 @@
+Rico Rico Rico RICO!!;)
+
+____________________________
+
+Duncan has been dumped twice by Courtney and Gwen and has decided he is done with girls. But after all stars, and getting dumped by Gwen, He starts hanging out with Alejandro but then develops feelings for him.But he knows that he won't feel the same, but turns out Alejandro is a closeted gay.
+
+____________________________
+
+: All abouttt ricoo MEE!!! :
+
+
+= Pansexual / Aroace . . . ! !:D
+
+
+= im uncomfortable to tell my age:(
+
+
+= A TEEN!!!:33 💋💋
+
+
+=Artist.. IG???
+____________________________
+
+CUrrently i Simpopdlllfle for alejandro burromueetoo.. hahaha.
+
+FANDOMSSSSSSSS . :BV0109W38JJozkxaaaa
+
+
+  Dw , Td . Dhmis , Hs 
+  
+
+  Metal family . Dogman
+  
+
+  AND SOME THINGSS I FORGOT SIGH.
+
+  ___________________________________
+
+  Int  : 
+-
+  
+:  If you wnna be friends ww me??:33 
+
+
+:  If uu wanna.. heh... ROLEPLAY??:DDD
+
+:  if u wnan taalk w m3e::33?? (I SOMETIMES DONT WANNA TALK OTMROS..) Ask FIRST...!!
+
+
+:   well heh.e.hen... if ur cool OMG.
+
+
+DNI
+-
+
+
+:   If yourrre youre a HATER.
+
+:   Ifffff u made me uncomfortabke like uhmmm DOING SOEMTHING DIRTY ALOT??? im ok if ur a littleee FREAKY. not very frekay..
+
+_____________________________________
+
+
+W2i . Free C + H . Int 
+
+README  STILL A WIP!!:((
