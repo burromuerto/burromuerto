@@ -6,7 +6,7 @@ Duncan has been dumped twice by Courtney and Gwen and has decided he is done wit
 
 ____________________________
 
-: All abouttt ricoo MEE!!! :
+: All abouttt  MEE!!! :
 
 
 = Pansexual / Aroace . . . ! !:D
@@ -58,10 +58,29 @@ DNI
 
 :   Ifffff u made me uncomfortabke like uhmmm DOING SOEMTHING DIRTY ALOT??? im ok if ur a littleee FREAKY. not very frekay..
 
+
+Names = . Ysh , Mason , Rico 0.o 1?!?11?!!
+
+
+im currently inlove with himmmmm I LOVE YOUUU NOAHH AHSUWHHWHA i love u so much very much i love u i loveee uuuuuu 
+
+![alt text](https://media.tenor.com/C3ghZkMP-r4AAAAM/alejandro-total-drama.gif)
+
 _____________________________________
 
 ![image alt](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSA_Ugx8n_xxs5BVlGr0qng5I-o4aqL2RcZwbFgyRVKG92yETsrmvg1d2i1&s=10)
 
-W2i . Free C + H . Int 
+W2i . Free C + H . Int firstt!! 
 
-README  STILL A WIP!!:((
+                 sometimes shyyy..
+_______
+
+ꪀ ᥊ ꪑ         
+
+______________   
+
+
+![alt text](https://media0.giphy.com/media/l0MYsWXYOBlxjElxu/giphy.gif?cid=6c09b952a0wmbqjihc1qp1ubzz14bamzilhmch28x2k03ydy&ep=v1_stickers_search&rid=giphy.gif&ct=s)
+
+
+wyd here!!
