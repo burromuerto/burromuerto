@@ -4,21 +4,33 @@ ____________________________
 
 Duncan has been dumped twice by Courtney and Gwen and has decided he is done with girls. But after all stars, and getting dumped by Gwen, He starts hanging out with Alejandro but then develops feelings for him.But he knows that he won't feel the same, but turns out Alejandro is a closeted gay.
 
+your nostrils are 10/10
+
 ____________________________
 
-: All abouttt  MEE!!! :
+: All abouttt me! :
 
 
-= Pansexual / Aroace . . . ! !:D
+= Pansexual / Aroace 
 
 
-= im uncomfortable to tell my age:(
+= im uncomfortable to tell my age
 
 
-= A TEEN!!!:33 💋💋
+= teenage
 
 
-=Artist.. IG???
+= Artist.. IG???
+
+*
+
+
+my lovely favourite ships
+
+
+*
+
+  Aletyler, Aleduncan, Alenoah. 
 ____________________________
 
 CUrrently i Simpopdlllfle for alejandro burromueetoo.. hahaha.
@@ -59,7 +71,7 @@ DNI
 :   Ifffff u made me uncomfortabke like uhmmm DOING SOEMTHING DIRTY ALOT??? im ok if ur a littleee FREAKY. not very frekay..
 
 
-Names = . Ysh , Mason , Rico 0.o 1?!?11?!!
+Names = . Mason , Rico , Alex/Al
 
 
 im currently inlove with himmmmm I LOVE YOUUU NOAHH AHSUWHHWHA i love u so much very much i love u i loveee uuuuuu 
@@ -70,7 +82,7 @@ _____________________________________
 
 ![image alt](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSA_Ugx8n_xxs5BVlGr0qng5I-o4aqL2RcZwbFgyRVKG92yETsrmvg1d2i1&s=10)
 
-W2i . Free C + H . Int firstt!! 
+W2i . Free C + H . Int first
 
                  sometimes shyyy..
 _______
@@ -83,4 +95,4 @@ ______________
 ![alt text](https://media0.giphy.com/media/l0MYsWXYOBlxjElxu/giphy.gif?cid=6c09b952a0wmbqjihc1qp1ubzz14bamzilhmch28x2k03ydy&ep=v1_stickers_search&rid=giphy.gif&ct=s)
 
 
-wyd here!!
+thank you for checking out^_^
