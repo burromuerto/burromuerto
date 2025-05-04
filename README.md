@@ -74,7 +74,6 @@ DNI
 Names = . Mason , Rico , Alex/Al
 
 
-im currently inlove with himmmmm I LOVE YOUUU NOAHH AHSUWHHWHA i love u so much very much i love u i loveee uuuuuu 
 
 ![alt text](https://media.tenor.com/C3ghZkMP-r4AAAAM/alejandro-total-drama.gif)
 
@@ -87,7 +86,7 @@ W2i . Free C + H . Int first
                  sometimes shyyy..
 _______
 
-ꪀ ᥊ ꪑ         
+aletyler canon
 
 ______________   
 
