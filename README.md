@@ -11,7 +11,7 @@ ____________________________
 : All abouttt me! :
 
 
-= Pansexual / Aroace 
+= Straight
 
 
 = im uncomfortable to tell my age
