@@ -11,7 +11,7 @@ ____________________________
 : All abouttt me! :
 
 
-= Straight
+= swan and wolf addiction
 
 
 = im uncomfortable to tell my age
