@@ -15,7 +15,8 @@ ________________
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚  ⋮ ⌗ ┆
 
-
+HELLOOOO IM MASON / SHAUN
+    
     you dont know HOW addicting thangyu/aletyler was to me .. 🚩
 
       Nam-gyu , Choi Su-bong addixted CHRONICALLY OJLINE plz int
