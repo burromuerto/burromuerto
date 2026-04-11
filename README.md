@@ -16,12 +16,9 @@ ________________
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚  ⋮ ⌗ ┆
 
-HELLOOOO IM MASON / SHAUN
+HELLOOOO IM MASON / SHAUN . Any prns
 
 
-N: For those some people who told me to kms over one small thing because i was JUST ' JOKING ' around or try to accuse me for flirting(as a joke) with my friends WHEN you dont even know theyre my friends and thinks me and my friends are strangers, then you get uncomfortable. Please, I suggest stop being sensitive and think about what youre doing. Your word or your threatening doesnt make a change to me nor this world. And please, if youre uncomfortable of me joking around just say it to me PRIVATELy, or just ignore me!. 
-
-Also, I can tell that SOME people on ponytown only cares about BEAUTIFUL skins. What I mean is, when a ugly, simple skin is interacting with someone like that, theyre likely to leave, not say something ( theyre not AFK. ) , or tell them to go away in a mean way. But if someone with good shaded skin interacts with someone like that.. they would ofc, get excited or gets happy when someone interacts with good skin. 
 
     
       PLEASE
