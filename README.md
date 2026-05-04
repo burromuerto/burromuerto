@@ -16,7 +16,7 @@ ________________
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚  ⋮ ⌗ ┆
 
-HELLOOOO IM MASON / SHAUN . Any prns
+HELLOOOO IM MASON . Any prns
 
 
 
