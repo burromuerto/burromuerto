@@ -16,7 +16,9 @@ ________________
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚  ⋮ ⌗ ┆
 
-HELLOOOO IM MASON . Any prns
+HELLOOOO IM MASON . SHE / HER 
+
+i luv my bf , mlw
 
 
 
