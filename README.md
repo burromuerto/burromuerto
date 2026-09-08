@@ -18,7 +18,7 @@ ________________
 
 HELLOOOO IM MASON . SHE / HER 
 
-i luv my bf , mlw
+
 
 
 
